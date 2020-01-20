@@ -2,4 +2,4 @@ Created November 29, 2019
 
 Notes by Alon Lustigman
 
-Good luck! :)
+May the odds be ever in your favor
